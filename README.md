@@ -22,4 +22,5 @@ In September 2024, I had the incredible opportunity to step into the shoes of a 
 
 #Client Presentation: Delivered key findings and strategic recommendations, receiving 90% positive feedback from stakeholders.
 
-🎓 Certification
+
+
